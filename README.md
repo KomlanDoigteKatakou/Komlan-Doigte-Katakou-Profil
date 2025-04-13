@@ -16,6 +16,6 @@
 
 📫 **Contact** :
 
-LinkedIn : [LinkedIn](https://www.linkedin.com/in/komlan-doigte-katakou/)
+[LinkedIn](https://www.linkedin.com/in/komlan-doigte-katakou/)
 
-E-mail : [E-mail](doigtekatakou@gmail.com)
+[E-mail](doigtekatakou@gmail.com)
